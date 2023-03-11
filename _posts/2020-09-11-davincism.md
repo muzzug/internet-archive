@@ -4,6 +4,8 @@ title: "DAVINCISM: A MODERN PHILOSOPHY FOR PEOPLE WITH VARIOUS INTEREST"
 date: 2020-09-11 00:00:00 
 ---
 
+Source: [https://www.santiyounger.com/davincism](https://www.santiyounger.com/davincism)
+
 ## A NEW MODERN PHILOSOPHY
 I've been playing with an idea for a while. **What if I started a movement for a modern school of thought?** It would be a philosophy for creators. I would name this philosophy Davincism in honor to the greatest creator of all time Leonardo da Vinci.
 
@@ -64,5 +66,3 @@ Most people know who Leonardo da Vinci is, he is recognized as a genius and it's
 
 ## WHAT'S NEXT
 Considering that you are on board with this new philosophy, **you can become a practicing Davincist from this moment onward**. Of course using a new term won't chance your life just like that, but it's a start. y thoughts on this new philosophy are in progress. If you would like to find out more how to be a successful Davincist I'd love to help, feel free to contact me, let's create a movement together.
-
-Source: [https://www.santiyounger.com/davincism](https://www.santiyounger.com/davincism)
